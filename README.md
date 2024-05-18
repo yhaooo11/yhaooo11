@@ -10,4 +10,4 @@
 
 Feel free to reach out on [LinkedIn](https://www.linkedin.com/in/yifan-hao03/) or via e-mail (yifanhao5@gmail.com).
 
-![ng21tcp6hr2a1](https://github.com/yhaooo11/yhaooo11/assets/63517269/d6e27788-c42a-41d0-a041-f27e3e77c42e)
+![ng21tcp6hr2a1 (1)](https://github.com/yhaooo11/yhaooo11/assets/63517269/116b5f95-7282-49f0-b305-bec76671e0ee)
